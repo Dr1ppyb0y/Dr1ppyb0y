@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Dr1ppyb0y
+- 👀  interest🧙🏽‍♂️🥷🏽👤
+- 🌱 I’m currently teaching myself to c0d3
+- 💞️ I’m looking to collaborate on anyone willing to help me improve in hacking and coding
+- 📫 How to reach me ... drippy187@proton.me
